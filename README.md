@@ -317,4 +317,4 @@ Especialista em diagnóstico, estruturação e governança comercial, atuando em
 
 LinkedIn:
 
-https://www.linkedin.com/in/adrianomoreira/
+[https://www.linkedin.com/in/adrianomoreiraconsultor/]
